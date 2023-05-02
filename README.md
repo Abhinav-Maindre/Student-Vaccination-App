@@ -8,7 +8,5 @@
 ![Screenshot 2023-05-02 124445](https://user-images.githubusercontent.com/98836392/235627911-2b7cce4e-7954-4875-b1de-6258d8e01b9f.png)
 ![Screenshot 2023-05-02 124419](https://user-images.githubusercontent.com/98836392/235627942-195ea672-b978-4a09-8efc-2e7d13393c00.png)
 ![Screenshot 2023-05-02 124345](https://user-images.githubusercontent.com/98836392/235627953-7ea54201-f314-49bb-b188-b4eb5d33e6d4.png)
-![Screenshot 2023-05-02 124544](https://user-images.githubusercontent.com/98836392/235627895-d761f88a-de28-4e05-9840-9bb73e4f7a4b.png)
 
-![12](https://user-images.githubusercontent.com/98836392/235628142-d0a03252-1355-43c0-8193-6a7ab02042b6.png)
 
